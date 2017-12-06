@@ -7,7 +7,7 @@ I don't know how can I Start a Project.
 So I want learn about this.
 
 
-First, I want learn about the English with on this platform.
+First, I want learn English on this platform.
 
 Seconds,I want coding on this platform.
 
